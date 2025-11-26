@@ -1,5 +1,5 @@
 # 💫 About Me:
-/I'm currently working on my own projects<br>/I'm looking to collaborate with other devs and learn a lot<br>/I'm currently learning and mastering web development<br>/I'm looking working with teams and have fun 🚀
+I'm currently working on my own projects<br>I'm looking to collaborate with other devs and learn a lot<br>I'm currently learning and mastering web development<br>I'm looking working with teams and have fun 🚀
 
 
 ## 🌐 Socials:
